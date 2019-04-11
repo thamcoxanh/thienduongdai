@@ -1,2 +1,0 @@
-# thienduongdai
-thien duong dai
